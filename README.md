@@ -1,2 +1,2 @@
 # plongofono.github.io
-Longofono Siblings Website/ More soon
+Peter Longofono's site/ More soon
